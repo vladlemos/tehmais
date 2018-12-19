@@ -1,3 +1,4 @@
+URL Curta: http://bit.ly/tehMais
 # Despedida da Stephanie
 
 Foram meses 'escovando bits' e o reconhecimento chegou!
